@@ -1,5 +1,7 @@
 Return to <a href="https://vocalmajority.github.io/about/">about</a>.
 
+*This list is not comprehensive, but hopefully can act as a starting point. For anybody looking to add an organization that is not already included, please make a pull request on the [github repository](https://github.com/vocalmajority).*
+
 This <a href="https://docs.google.com/document/d/1-0KC83vYfVQ-2freQveH43PWxuab2uWDEGolzrNoIks/mobilebasic#h.28ybn38q6jee">BLM document</a> is a master list of petitions, bailout funds, ways to educate yourself, and more. Below are quick links to many of the links included in that document.
 
 ## Demand Justice for George Floyd
