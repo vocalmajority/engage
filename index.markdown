@@ -25,12 +25,13 @@ ___
 * Text __FLOYD__ to 55-156
 * <a href="https://www.change.org/p/board-of-education-educating-our-children-to-understanding-racism?source_location=petitions_browse">Educating Our Children On Racism Through The School System</a>
 * <a href="https://www.change.org/p/andy-beshear-justice-for-breonna-taylor">Justice for Breonna Taylor</a>
-* <a href="https://www.change.org/p/minneapolis-district-attorney-raise-the-degree">Raise The Degree</a>
+* <a href="https://www.change.org/p/hennepin-county-attorney-michael-freeman-and-mayor-frey-charge-all-four-officers-involved-in-george-floyd-s-death-with-first-degree-murder?source_location=petitions_browse">Charge All Four Officers</a>
+* <a href="https://blacklivesmatter.com/demand-racial-data-on-coronavirus/">Demand Racial Data on Coronavirus</a>
+* <a href="https://www.freetheblock.org/">Free The Block</a>, which is working to end money bail, end pre-trial detention, and invest in the people.
+* <a href="https://www.change.org/p/us-senate-hands-up-act">Hand’s Up Act to punish police for shooting unarmed citizens</a>
 * <a href="https://act.colorofchange.org/sign/justiceforfloyd_george_floyd_minneapolis">Justice for George Floyd</a>
 * <a href="https://www.change.org/p/mayor-jacob-frey-justice-for-george-floyd">Justice for George Floyd</a>
-* <a href="https://www.change.org/p/hennepin-county-attorney-michael-freeman-and-mayor-frey-charge-all-four-officers-involved-in-george-floyd-s-death-with-first-degree-murder?source_location=petitions_browse">Charge All Four Officers</a>
-* <a href="https://www.change.org/p/us-senate-hands-up-act">Hand’s Up Act to punish police for shooting unarmed citizens</a>
-* <a href="https://blacklivesmatter.com/demand-racial-data-on-coronavirus/">Demand Racial Data on Coronavirus</a>
+* <a href="https://www.change.org/p/minneapolis-district-attorney-raise-the-degree">Raise The Degree</a>
 * Sign the Movement for Black Lives’ <a href="https://m4bl.org/join-our-movement/">petition</a> to push elected officials to fight against the militarization in communities of color.
 
 ___
