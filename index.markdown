@@ -16,6 +16,8 @@ ___
 * Here is a great resource from BLM on <a href="https://docs.google.com/document/d/1TiM590c9MjOzh60kQKkleI-euzDr7sD-FT3rXIDNvlc/edit">How to Email Your Mayor About Police Reform</a>. 
 * Email NYC Mayor de Blasio <a href="https://www1.nyc.gov/office-of-the-mayor/mayor-contact.page">here</a>.
 
+Additionally, Campaign Zero released data that proves that eight use of force policies can decrease police violence by 72%. Check out <a href="https://8cantwait.org/">8CantWait.org</a>. Use Campaign Zero’s tool to see what your city’s department policies are and to call/write your mayor to demand they adopt all 8. Sustained feedback is what creates the pressure to change.
+
 ___
 
 ## Sign Petitions
