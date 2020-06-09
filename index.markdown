@@ -6,7 +6,7 @@ This <a href="https://docs.google.com/document/d/1-0KC83vYfVQ-2freQveH43PWxuab2u
 
 ## Demand Justice for George Floyd
 
-Big shoutout to <a href="https://www.instagram.com/maasaipg/"@maasaipg</a> for creating <a href="https://l.instagram.com/?u=http%3A%2F%2Ftinyurl.com%2Femailforfloyd%2F&e=ATMioPXqMDcACANBmCw0rfjiDrjt-r26lAkYejJVAgG9FhuwLHR9qPFxReK-jEplvg0pA-DZyuRyX78NyvFv&s=1">this link</a> which populates a pre-written email template that you can send to officials asking for justice for George Floyd. Simply plug in your name, city, and state. 
+Big shoutout to <a href="https://www.instagram.com/maasaipg/">@maasaipg</a> for creating <a href="https://l.instagram.com/?u=http%3A%2F%2Ftinyurl.com%2Femailforfloyd%2F&e=ATMioPXqMDcACANBmCw0rfjiDrjt-r26lAkYejJVAgG9FhuwLHR9qPFxReK-jEplvg0pA-DZyuRyX78NyvFv&s=1">this link</a> which populates a pre-written email template that you can send to officials asking for justice for George Floyd. Simply plug in your name, city, and state. 
 
 ___
 
