@@ -6,7 +6,7 @@ This <a href="https://docs.google.com/document/d/1-0KC83vYfVQ-2freQveH43PWxuab2u
 
 ## Demand Justice for George Floyd
 
-Big shoutout to @maasaipg for creating <a href="https://l.instagram.com/?u=http%3A%2F%2Ftinyurl.com%2Femailforfloyd%2F&e=ATMioPXqMDcACANBmCw0rfjiDrjt-r26lAkYejJVAgG9FhuwLHR9qPFxReK-jEplvg0pA-DZyuRyX78NyvFv&s=1">this link</a> which populates a pre-written email template that you can send to officials asking for justice for George Floyd. Simply plug in your name, city, and state. 
+Big shoutout to <a href="https://www.instagram.com/maasaipg/"@maasaipg</a> for creating <a href="https://l.instagram.com/?u=http%3A%2F%2Ftinyurl.com%2Femailforfloyd%2F&e=ATMioPXqMDcACANBmCw0rfjiDrjt-r26lAkYejJVAgG9FhuwLHR9qPFxReK-jEplvg0pA-DZyuRyX78NyvFv&s=1">this link</a> which populates a pre-written email template that you can send to officials asking for justice for George Floyd. Simply plug in your name, city, and state. 
 
 ___
 
@@ -24,6 +24,7 @@ ___
 ## Sign Petitions
 
 * Text __FLOYD__ to 55-156
+* Text 50a to 50409 to demand accountability for acts of police violence and misconduct by urging representatives to Repeal Section 50-A.
 * <a href="https://www.change.org/p/board-of-education-educating-our-children-to-understanding-racism?source_location=petitions_browse">Educating Our Children On Racism Through The School System</a>
 * <a href="https://www.change.org/p/andy-beshear-justice-for-breonna-taylor">Justice for Breonna Taylor</a>
 * <a href="https://www.change.org/p/hennepin-county-attorney-michael-freeman-and-mayor-frey-charge-all-four-officers-involved-in-george-floyd-s-death-with-first-degree-murder?source_location=petitions_browse">Charge All Four Officers</a>
@@ -34,6 +35,7 @@ ___
 * <a href="https://www.change.org/p/mayor-jacob-frey-justice-for-george-floyd">Justice for George Floyd</a>
 * <a href="https://www.change.org/p/minneapolis-district-attorney-raise-the-degree">Raise The Degree</a>
 * Sign the Movement for Black Lives’ <a href="https://m4bl.org/join-our-movement/">petition</a> to push elected officials to fight against the militarization in communities of color.
+* Sign the <a href="https://www.15percentpledge.org/">Fifteen Percent Pledge petition</a>, an initiative launched by Aurora James that calls on major retailers to pledge 15% of their shelf space to Black-owned businesses. 
 
 ___
 
